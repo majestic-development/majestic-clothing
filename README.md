@@ -6,7 +6,7 @@ https://www.youtube.com/watch?v=Jaf4tmbZbQY&t=74s
 
 
 
-## 🤝 Support
+## 🤝 Support & Buy!
 - [Tebex Store](https://majestic.tebex.io/)
 - [Discord Server](https://discord.gg/SbjjtT9WsG)
 
